@@ -1,6 +1,6 @@
 # PL-A104615
 
-![Imagem Imgur](https://imgur.com/a/GmQPgMP)
+![Foto de Perfil](https://avatars.githubusercontent.com/u/147345720?s=400&u=6dc6ccf2c8768c16c5148c945ae80a7a9d624738&v=4)
 
 ## Identificação
 - **Nome:** David Silva e Costa
